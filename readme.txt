@@ -1,0 +1,3 @@
+﻿tình hình sao rồi haha ...
+Ốm sml ra thì sao chứ .
+Mai ta lại đi học 
